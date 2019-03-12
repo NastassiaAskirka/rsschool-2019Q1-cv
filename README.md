@@ -1,1 +1,1 @@
-[ https://NastassiaAskirka.github.io/rsschool-2019Q1-cv/cv](https://NastassiaAskirka.github.io/rsschool-2019Q1-cv/cv.html)
+[ https://NastassiaAskirka.github.io/rsschool-2019Q1-cv/cv](https://NastassiaAskirka.github.io/rsschool-2019Q1-cv/cv)
